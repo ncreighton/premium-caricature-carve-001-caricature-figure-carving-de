@@ -1,0 +1,2 @@
+# premium-caricature-carve-001-caricature-figure-carving-de
+Tired of losing track of which figure's eyebrow needs one more stroke, or which reference photo matches that client's request? The Caricature Figure Carving &amp; Detail Craft Hub is your centralized command center to banish detail drift and keep every carving project on point.  This Notion template solves the chaos of juggling multiple caricature figu
